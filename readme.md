@@ -1,4 +1,2 @@
-# booya chaaaka
-
-# lupa linda
+# booya chaaakaa
 
